@@ -23,7 +23,7 @@ Para 10 estudiantes.
 
 ## Asistentes
 
-1. Darío
+1. cumasystem
 2. X
 3. X
 4. X
